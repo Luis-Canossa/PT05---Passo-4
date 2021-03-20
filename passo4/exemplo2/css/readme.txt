@@ -1,1 +1,0 @@
-Para carregar esta pasta vazia.
